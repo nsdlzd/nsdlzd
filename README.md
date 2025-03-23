@@ -1,16 +1,21 @@
-## Hi there 👋
+一二三四日本视频忘忧草影视www在线播放动漫
 
-<!--
-**nsdlzd/nsdlzd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+等我半个小时！”直接刘昴星动作行云流水，仿佛这“法式羊鞍扒”，也是他的必杀料理一样！
+
+    没错，所有人都看出来了，刘昴星也是在做之前其他人所料理过的“法式羊鞍扒”……
+
+    如果说这还只是令江原他们疑惑的话，那之后刘昴星身上，忽然升起的气势，便令他们在熟悉感过后，迎来了一阵震惊！
+
+    “什么？难道他也是……”江原不敢置信的说道。
+
+    而李源和横沟更是一阵莫名其妙，暗道：莫非刘昴星也被那个人拉拢了？但是他的行为……完全不像啊！
+
+    没错，刘昴星身上的升腾起的气势，分明就是“厨心”，而且在感觉上与之前他们品尝的“法式羊鞍扒”的厨心很像。
+
+    “像”也是当然的，因为这正是刘昴星使用了“超视觉”与“瞬间内心推定”结合后的另一种能力“镜中厨心”！
+
+    “哎，刚刚收纳了一种‘镜中厨心’，马上就要用出去……不过也没什么！这厨心本来就是薙切蓟分裂出来的，保存价值也不大、反而分心，用了也好！”
